@@ -1,3 +1,2 @@
 🌍 **Data Analyst** specializing in LTV models and subscription-based applications.  
-📚 Passionate about literature, traveling, and Brazilian Jiu-Jitsu.  
-🚴‍♂️ Exploring new horizons, both on a bike and in my professional journey!  
+📚 Passionate about sports data analytics, literature, traveling, and Brazilian Jiu-Jitsu.  
